@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NDeleon0305
+- 👀 I’m interested in programming
+- I want to learn to code in a year
